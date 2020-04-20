@@ -1,0 +1,2 @@
+# Amharicmusic
+about different music
